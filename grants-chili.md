@@ -2,14 +2,14 @@
 
 ## Ingredients
 
-- 1.5lbs	Ground turkey
+- 1.5 lbs.	Ground turkey
 - 4-6		On the vine or Roma tomatoes (Diced)
 - 2-3		Hungarian Wax peppers (Cut quarter rounds)
 - 3-4		Jalapeño peppers (Cut quarter rounds)
 - 3-4 		Red Chili peppers (Cut quarter rounds)
 - 1			Yellow/Sweet onion (Chopped)
 - 2			Bell Peppers (Any color, cut quarter rounds)
-- 2 tbsp	Canola Oil
+- 2 tbsp.	Canola Oil
 - 4 pods	Cardamon (Crushed)
 - 2 tsp.	Cayenne Pepper Powder
 - 1 tsp.	Chili Powder
