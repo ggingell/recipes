@@ -2,10 +2,10 @@
 
 ## Ingredients
 
-- 4 cups 	All-purpose flour
-- 1 tsp. 	Salt
-- 2 tsp. 	Baking Powder
-- 2 tbsp. 	Lard
+- 4 cups 	  All-purpose flour
+- 1 tsp 	  Salt
+- 2 tsp 	  Baking Powder
+- 2 tbsp   	Lard
 - 1.5 cups 	Water
 
 ## Instructions
