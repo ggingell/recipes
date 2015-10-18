@@ -2,11 +2,11 @@
 
 ## Ingredients
 
-- 1 (8 oz.) Brick Cream Cheese, Room Temperature
-- 1 Stick Butter, Room Temperature
-- 1 Egg
-- 1 Teaspoon Vanilla Extract
-- 1 (18 oz.) Box Moist Chocolate Cake Mix
+- 1      (8 oz.) Brick Cream Cheese, Room Temperature
+- 1      Stick Butter, Room Temperature
+- 1      Egg
+- 1 tsp  Vanilla Extract
+- 1      (18 oz.) Box Moist Chocolate Cake Mix
 - .5 cup Confectioners' Sugar, for dusting
 
 ## Instructions

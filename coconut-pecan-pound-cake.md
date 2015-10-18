@@ -16,10 +16,10 @@
 
 #### Glaze
 
-- 1 C sugar
-- 1/2 C water
-- 2 tbsp butter
-- 2 tbsp coconut flavoring
+- 1   cups Sugar
+- .5  cups Water
+- 2   tbsp Butter
+- 2   tbsp Coconut flavoring
 
 ## Instructions
 
