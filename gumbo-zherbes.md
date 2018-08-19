@@ -9,9 +9,9 @@
 - 3        Cans (14 1/2 ounces each) reduced-sodium chicken broth
 - 2        Garlic cloves, minced
 - 1        Bay leaf
-- .5 tsp   Dried thyme
+- 1/2 tsp   Dried thyme
 - Dash     Coarse salt
-- .25 tsp  Cayenne pepper
+- 1/4 tsp  Cayenne pepper
 
 - Cooked white rice, for serving
 

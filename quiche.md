@@ -2,8 +2,8 @@
 
 ## Ingredients
 
-- 1             Pie crust, normal 9" diameter x 1.5" deep (not a sweet crust!)
-- 2.5 cups      Milk
+- 1             Pie crust, normal 9" diameter x 1 1/2" deep (not a sweet crust!)
+- 2 1/2 cups    Milk
 - 3 eggs
 - 3 egg yolk
 - 1             Sweet or White Onion

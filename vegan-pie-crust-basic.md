@@ -2,12 +2,12 @@
 
 ## Ingredients
 
-- 2.5 cups    All Purpose Flower
-- .75 cup     Vegetable Shortening; Many brands, check the baking aisle. Else there is Crisco.
-- 1 tbsp      Coconut Oil (Chilled enough to be solid)
-- 2 tbsp      Earth Balance
-- .5 cup      Cold Water
-- 1.5 tsp     Salt
+- 2 1/2 cups    All Purpose Flower
+- 3/4 cup       Vegetable Shortening; Many brands, check the baking aisle. Else there is Crisco.
+- 1 tbsp        Coconut Oil (Chilled enough to be solid)
+- 2 tbsp        Earth Balance
+- 1/2 cup       Cold Water
+- 1 1/2 tsp     Salt
 
 ## Instructions
 

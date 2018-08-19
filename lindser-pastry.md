@@ -3,11 +3,11 @@
 ## Ingredients
 
 - 1 lb       Flour
-- .5 lb      Butter
+- 1/2 lb     Butter
 - 2 oz       Almonds, finely ground
 - 3 oz       Powdered Sugar
-- 2         Eggs
-- Pinch     Salt
+- 2          Eggs
+- Pinch      Salt
 
 ## Instructions
 

@@ -6,9 +6,9 @@
 - 1   cup Oil
 - 4   Eggs
 - 3   cups Plain Flour
-- .5  tsp salt
-- .5  tsp baking soda
-- .5  tsp baking powder
+- 1/2  tsp salt
+- 1/2  tsp baking soda
+- 1/2  tsp baking powder
 - 1   cup buttermilk or 1cup milk & 2 tsp lemon juice
 - 2   tsp coconut flavoring
 - 1   cup Chopped Pecans
@@ -17,7 +17,7 @@
 #### Glaze
 
 - 1   cups Sugar
-- .5  cups Water
+- 1/2  cups Water
 - 2   tbsp Butter
 - 2   tbsp Coconut flavoring
 

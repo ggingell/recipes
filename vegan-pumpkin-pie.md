@@ -8,16 +8,16 @@
 
 ### Filling
 
-- 2 cups    Pumpkin Puree, cooked
-- 2 eggs    Equivalent of Ener-G Egg Replacer (Shake in mason jar)
-- 1.5 cups  Vegan Sweetened Condensed Milk
-- .5 cup    Sugar
-- .5 tsp    Salt
-- .5 cup    Brown Sugar
-- .25 tsp   Nutmeg
-- .25 tsp   Allspice
-- 1 tsp     Ginger
-- 1 tsp     Cinnamin
+- 2 cups      Pumpkin Puree, cooked
+- 2 eggs      Equivalent of Ener-G Egg Replacer (Shake in mason jar)
+- 1 1/2 cups  Vegan Sweetened Condensed Milk
+- 1/2 cup     Sugar
+- 1/2 tsp     Salt
+- 1/2 cup     Brown Sugar
+- 1/4 tsp     Nutmeg
+- 1/4 tsp     Allspice
+- 1 tsp       Ginger
+- 1 tsp       Cinnamin
 
 ## Instructions
 

@@ -3,13 +3,13 @@
 ## Ingredients
 
 - 1         Cucumber
-- .5        White onion, chopped
-- .5        Sweet onion, chopped
+- 1/2        White onion, chopped
+- 1/2        Sweet onion, chopped
 - 1         Green Pepper
 - 2 tsp     Minced Garlic
 - 1 - x     Chili pepper, Jalapeños or other peppers as desired.
 - 4 cups    Tomato Juice, canned, V8
-- .25 cup   Red whine vinegar and or balsamic
+- 1/4 cup   Red whine vinegar and or balsamic
 - 4 tbsp    Olive Oil
 - 2 cup     Bread Crumbs
 - \*        Fresh basil leaves

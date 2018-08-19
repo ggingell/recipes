@@ -2,12 +2,12 @@
 
 ## Ingredients
 
-- 2         1lb Cream Cheese blocks
+- 2         8oz Blocks cream cheese
 - 2         Eggs
 - 3/4 cup   Sugar
 - 1 tsp     Vanilla
 - 1         Pie crust, normal 9" diameter x 1.5" deep
-- \*         Toppings of any kind: Fruit, nuts, chocolate, syrups etc.
+- \*        Toppings of any kind: Fruit, nuts, chocolate, syrups etc.
 
 ## Instructions
 
